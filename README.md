@@ -1,1 +1,1 @@
-# projiect-OBORE
+# Project-OBORE
